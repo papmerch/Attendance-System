@@ -1,0 +1,1 @@
+- put people pic with their names
